@@ -1,4 +1,6 @@
-<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/2ea49701-0be5-46b5-9ed9-11460d24289b" />
+<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/9f1534fc-bebb-4992-b149-ca24a1e39ffa" />
 
-" `Maaaaaaannnnnnnnnnnnn...`
-AUBREY always gets what she wants. "
+
+
+$${\color{orange}\text{Maaaaaaannnnnnnnnnnnn...
+AUBREY always gets what she wants.}}$$
