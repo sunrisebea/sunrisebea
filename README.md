@@ -1,7 +1,7 @@
-<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/9f1534fc-bebb-4992-b149-ca24a1e39ffa" />
+<img width="700" height="700" alt="image" src="https://github.com/user-attachments/assets/f47a892b-76e5-4fde-9ee1-97b7a5a10066" />
 
 
 
-$${\color{orange}\text{Maaaaaaannnnnnnnnnnnn...
-AUBREY always gets what she wants.}}$$
+
+$${\color{yellow}\text{Get it done, CHARGEZUMA!}}$$
 
