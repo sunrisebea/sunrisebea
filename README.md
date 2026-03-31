@@ -1,4 +1,4 @@
-me and my prince hes butt kicking cool ! :3
+me and my honey hes butt kicking cool :P
 
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/f295e994-3fa8-4cf5-b6c7-9d6d2d16e910" />
 
